@@ -1,1 +1,1 @@
-It's coming soon, please be patient.
+The user guide will be released after acceptance. Please stay tuned and be patient.
